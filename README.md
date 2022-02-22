@@ -5,4 +5,6 @@
 - semoga repositori saya dapan membantu
 - jika ada hal yang kurang berkenan saya mohon maaf, wasalam 👋.
 
+portofolio ku : https://bit.ly/3p6T6LQ
+
 link game crib in schoool : https://bit.ly/3p4CW5w
